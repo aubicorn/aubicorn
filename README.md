@@ -5,6 +5,6 @@
 
 ![](https://i.postimg.cc/bJfCfW9Q/my-hero-academia-world-heroes-mission.gif)
 
-`i luv st, jjk, mha, + more`
+`i luv st, jjk, mha, + more ♡`
 
 ![](https://komarev.com/ghpvc/?username=aubicorn&color=202430)
