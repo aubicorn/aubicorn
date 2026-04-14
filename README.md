@@ -3,7 +3,7 @@
 [pt info](https://rentry.co/milktea)ㅤ 𖥔 ㅤ[atabook](https://brain.atabook.org/)
 
 
-![](https://i.postimg.cc/bJfCfW9Q/my-hero-academia-world-heroes-mission.gif)
+![](https://i.postimg.cc/t45Fd6Bp/my-hero-academia-world-heroes-mission.gif)
 
 `i luv st, jjk, mha, + more ♡`
 
